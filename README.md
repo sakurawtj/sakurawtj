@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **sakurawtj@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1HIh_b3zu9nZATvQTqU6kfsh9G3z88_Ne/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Hu_4qbRCIdz6OTP1r2RFkyn3-Xe9dxkm/view?usp=drive_link)
 
 
 <p align="left">
